@@ -2,4 +2,4 @@
 
 Esta serie de libros cuentan la historia de  un hacker excepcional.
 
-** Ruben Lucena **
+** Ruben Lucena **, LArry Plotter fan
